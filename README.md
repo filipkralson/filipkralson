@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @filipkralson
 - 👀 I’m interested in: 💵 and 🚗
-- 🌱 I’m currently learning: How to be rich!
+- 🌱 I’m currently learning: How to run my business the best!
 - 📫 How to reach me: Don't do that. 🙂
 
 <!---
